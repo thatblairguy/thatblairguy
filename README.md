@@ -5,7 +5,7 @@ Blair's just this guy, y'know?
 Where to find me:
 
 * [Chaos and Penguins](https://www.chaosandpenguins.com)
-* [Twitter](https://twitter.com/thatblairguy)
+* [Mastodon](https://mstdn.social/@thatblairguy)
 * [Instagram](https://www.instagram.com/thatblairguy/)
 * [Linked In](https://www.linkedin.com/in/blair-learn-3296191/)
 
